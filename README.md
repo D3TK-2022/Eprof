@@ -1,1 +1,1 @@
-# Eprof
+# Etika dan Pengembangan Profesi
